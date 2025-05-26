@@ -1,1 +1,1 @@
-hernan toca una skin y toca el boton verde
+ hola hay 3 skis que son iguales
